@@ -1,4 +1,4 @@
-# Community-Engagement
+# Community Engagement
 ### Asbury Elementary School
 
 During my time at DU I was fortunate enough to participate in the Pioneer Leadership Program and one of the requirements for Freshman students is to pick a local organization that interests you and commit to volunteering with them throughout the year. The organization that I picked was a school right down the street from DU, Asbury Elementary School. For awhile now I have had a looming interest in being an educator and I think that is partially what guided me to volunteer at a school that would allow me to explore this interest in a little more depth. My volunteer time here involved helping in a first grade classroom and taking part in activities such as reading and writing lessons, grading, and creative projects. I am fairly positive that any of the students that I worked with would now longer remember me but watching their development, even in one short year, was incredibly rewarding for me and reminded me of the importantance of education. 
