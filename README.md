@@ -6,3 +6,5 @@ During my time at DU I was fortunate enough to participate in the Pioneer Leader
 After completeing my volunteer time at Asbury I reached a few conclusions. I am still very interested in being involved in education and even though my degree does not directly cater to that interest, I can find ways to be involved without being a teacher. Another significant takeaway was that volunteering within a community is an invaluable way to get to know the community. I grew up in a very small town and never really moved so I got to know my community really well as I was growing up. When I came to DU this aspect of my life was relatively uprooted in a sense as I tried to familiarize myself with new places, people, and ways of life. Volunteering at Asbury provided a thorough understanding of the community around DU and helped me acclimate quickly. This is an idea I would like to keep in mind wherever I end up in the future. 
 
 ### Community Change Initiative
+
+As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. 
