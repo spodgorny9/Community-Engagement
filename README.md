@@ -8,3 +8,5 @@ After completeing my volunteer time at Asbury I reached a few conclusions. I am 
 ### Community Change Initiative
 
 As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. 
+
+# Leadership
