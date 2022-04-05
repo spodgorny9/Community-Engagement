@@ -12,6 +12,7 @@ As part of my course work for the Pioneer Leadership Program, I participated in 
 
 This project took us all over the Denver metro area as we interviewed stakeholders from every corner of our identified challenge. We talked to the principal of Columbine High School who was at the helm during the Columbine shooting. We interviewed the Colorado Rockies community outreach leaders in a conference room that overlooks Coors Field. We also spent many hours writing emails that never received responses and watched stakeholder relationships that were once promising, fizzle into nothing. On top of that, the onset of COVID-19 shut down our school and many of the organizations we were working with just as the project was beginning to get rolling. Nevertheless, the experience we gained from this project was invaluable. 
 
+Possibly my most significant takeaway from the Community Change Initiative was just how hard it can be to get a grassroots project off the ground. There are so many variables to consider and so many stakeholders to talk to that important factors can easily fall through the cracks and crucial relationships can break down if they are not given the proper care and attention. On the more positive side, however, the project also helped me to realize how many people care about the issues that are facing their communities and community change rarely fails because of a lack of numbers but rather a lack of commitment or organization. Being effective in this field is reliant upon organizing these numbers to optimize the impact you can make.
 
 # Leadership
 
