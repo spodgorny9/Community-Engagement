@@ -8,7 +8,7 @@ After completeing my volunteer time at Asbury I reached a few conclusions. I am 
 ### Community Change Initiative
 
 
-As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. 
+As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. The purpose of this project was to identify a challenge facing the local community that is important to you and create an initiative that seeks to address this challenge in some way or another. 
 
 # Leadership
 
