@@ -8,7 +8,10 @@ After completeing my volunteer time at Asbury I reached a few conclusions. I am 
 ### Community Change Initiative
 
 
-As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. The purpose of this project was to identify a challenge facing the local community that is important to you and create an initiative that seeks to address this challenge in some way or another. 
+As part of my course work for the Pioneer Leadership Program, I participated in a group Community Change Initiative. The purpose of this project was to identify a challenge facing the local community that is important to you and create an initiative that seeks to address this challenge in some way or another. Every member of my group played sports in high school and we all felt as though those experience were crucial to our development and joy as adolescents; additionally, we recognized a concerning trend related to youth mental health nationwide and specifically in Denver. Thus, we decide to approach the challenge of mental health struggles in youth populations by way of physical activity. 
+
+This project took us all over the Denver metro area as we interviewed stakeholders from every corner of our identified challenge. We talked to the principal of Columbine High School who was at the helm during the Columbine shooting. We interviewed the Colorado Rockies community outreach leaders in a conference room that overlooks Coors Field. We also spent many hours writing emails that never received responses and watched stakeholder relationships that were once promising, fizzle into nothing. On top of that, the onset of COVID-19 shut down our school and many of the organizations we were working with just as the project was beginning to get rolling. Nevertheless, the experience we gained from this project was invaluable. 
+
 
 # Leadership
 
